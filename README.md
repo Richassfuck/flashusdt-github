@@ -15,7 +15,7 @@ ________________________________________________________________________________
 
 Download Free Flash USDT Sender Software In Our Website - https://flashusdt.shop Thanks To Squad Of R I C H. To Making It Available For The Peoples
 
-Contact The R I C H TO Purchase The Flash Coins Telegram - @Richassfuck - https://t.me/Richassfuck
+Contact The R I C H - To Purchase The Flash Coins Telegram - @Richassfuck - https://t.me/Richassfuck
 
 _______________________________________________________________________________________________________________________________________
 
